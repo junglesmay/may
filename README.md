@@ -10,3 +10,7 @@ Respondi 3 questões e assisti 1 vídeo de 16 minutos.
 
 - 30/10/2023
 5 perguntas respondidas e 1 vídeo de 11 minutos e outro de 16 minutos assistidos.
+
+
+- 06/11/2023
+respondi 6 perguntas e assisti um vídeo de 5 minutos e outro de 12 minutos.
