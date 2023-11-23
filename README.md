@@ -22,5 +22,10 @@ Respondi 3 questões e assisti 1 vídeo de 16 minutos.
 
 - 06/11/2023
   
-respondi 6 perguntas e assisti um vídeo de 5 minutos e outro de 12 minutos.
+Respondi 6 perguntas e assisti um vídeo de 5 minutos e outro de 12 minutos.
 
+
+
+
+- 23/11/2023
+Respondi 2 questões, assisti 1 vídeo de 4 minutos e outro de 11 minutos.
